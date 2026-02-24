@@ -1,7 +1,8 @@
-## Hi there 👋
+## idk how to code
 
 <!--
-**spandauballet/spandauballet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**spandauballet/spandauballet** i![GzxngcCWcAEiZBD](https://github.com/user-attachments/assets/520a8957-d0f2-4cab-8bd9-adf920563cc5)
+s a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
