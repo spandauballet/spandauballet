@@ -1,4 +1,5 @@
 ## idk how to code
+![GzxngcCWcAEiZBD](https://github.com/user-attachments/assets/680a5225-d744-44df-8587-38d7f6c5c349)
 
 <!--
 **spandauballet/spandauballet** i![GzxngcCWcAEiZBD](https://github.com/user-attachments/assets/520a8957-d0f2-4cab-8bd9-adf920563cc5)
